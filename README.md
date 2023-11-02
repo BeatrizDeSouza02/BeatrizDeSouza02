@@ -10,4 +10,6 @@
 
 - souza.beatriz02@escola.pr.gov.br
 
-[![](https://img.shields.io/badge/Email-E4405F?style=for-the-badge&logo=Email&logoColor=white)](https://mail.google.com/mail/u/3/#inbox)
+![](https://media.tenor.com/U2IQPoBhRTkAAAAj/kafama-s%C4%B1k%C4%B1cam-tnd.gif)
+![](https://media.tenor.com/ZXlAmn2F7uQAAAAj/dio-wryyy.gif)
+![](https://media.tenor.com/TL6aaUIRaloAAAAM/monobear-mad.gif)
